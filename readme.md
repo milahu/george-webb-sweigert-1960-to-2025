@@ -153,3 +153,12 @@ Christian Westbrook = Ice Age Farmer - https://unshadowed.substack.com/p/what-ha
 these people have the balls to talk about the elephants in the room: global depopulation, global famine, global destruction of food supply, …
 
 </blockquote>
+
+
+
+## mirrors
+
+- https://github.com/milahu/george-webb-sweigert-1960-to-2025
+- http://gg6zxtreajiijztyy5g6bt5o6l3qu32nrg7eulyemlhxwwl6enk6ghad.onion/milahu/george-webb-sweigert-1960-to-2025
+- http://git.dkforestseeaaq2dqz2uflmlsybvnq2irzn4ygyvu53oazyorednviid.onion/milahu/george-webb-sweigert-1960-to-2025
+- http://it7otdanqu7ktntxzm427cba6i53w6wlanlh23v5i3siqmos47pzhvyd.onion/milahu/george-webb-sweigert-1960-to-2025
