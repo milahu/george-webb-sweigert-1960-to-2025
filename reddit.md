@@ -236,4 +236,10 @@ maybe 5% of recent comments are legit comments:
 
 > George, WE GET IT. You don’t have the explain the concept of ‘facts’. And did you actually speak with Mitch and obtain ‘receipts’ ? Or not? I can’t tell. You tend to bloviate redundantly.
 
+[2025-12-28 How One Man Stopped The Electronic Lynching Of Candace Owens](https://archive.is/https://georgewebb.substack.com/p/how-one-man-stopped-the-electronic)
+
+2025-12-28 19:31 +0100 [Eleanor](https://substack.com/profile/83259261-eleanor)
+
+> Could not link to the specific articles noted in the article. the link did take me to each individual site but not to the specific article. I did a search for each one, zero result.
+
 </blockquote>
