@@ -193,6 +193,12 @@ sources are offline in these posts:
 - [2025-12-24 Which Was It - Erika One Or Erika Two?](https://archive.is/https://georgewebb.substack.com/p/which-was-it-erika-one-or-erika-two)
 - [2025-12-25 Is Mitch A Federal Informant To Throw Off The Barking DOGEs](https://archive.is/https://georgewebb.substack.com/p/is-mitch-a-federal-informant-to-throw)
 - [2025-12-27 Investigations Interrupted - Whenever We Get Close, We Get The Fed Informant](https://archive.is/https://georgewebb.substack.com/p/investigations-interrupted-whenever)
+- [2025-12-28 How One Man Stopped The Electronic Lynching Of Candace Owens](https://archive.is/https://georgewebb.substack.com/p/how-one-man-stopped-the-electronic)
+
+these posts are NOT paywalled:
+
+- [2025-12-27 I Just Ask For Mitch's Receipts, And The World Attacked](https://archive.is/https://georgewebb.substack.com/p/i-just-ask-for-mitchs-receipts-and)
+- [2025-12-28 How One Man Stopped The Electronic Lynching Of Candace Owens](https://archive.is/https://georgewebb.substack.com/p/how-one-man-stopped-the-electronic)
 
 </blockquote>
 
@@ -223,5 +229,11 @@ maybe 5% of recent comments are legit comments:
 2025-12-27 [Pushkara Sally Ashford](https://substack.com/profile/72370202-pushkara-sally-ashford) (0 likes)
 
 > Hi, George, FYI, whenever I click on the hyperlinks to read further an any of the points your raise, I get a 404 or "page not found." I've tried several fixes, but none of them seem to work. This is true for any of your recent posts.
+
+[2025-12-27 I Just Ask For Mitch's Receipts, And The World Attacked](https://archive.is/https://georgewebb.substack.com/p/i-just-ask-for-mitchs-receipts-and)
+
+2025-12-28 [Stephen](https://substack.com/profile/31387435-stephen) (1 likes)
+
+> George, WE GET IT. You don’t have the explain the concept of ‘facts’. And did you actually speak with Mitch and obtain ‘receipts’ ? Or not? I can’t tell. You tend to bloviate redundantly.
 
 </blockquote>
