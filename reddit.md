@@ -242,4 +242,10 @@ maybe 5% of recent comments are legit comments:
 
 > Could not link to the specific articles noted in the article. the link did take me to each individual site but not to the specific article. I did a search for each one, zero result.
 
+[2025-12-29 Mitch And The Missing Story - The Real Story](https://archive.is/https://georgewebb.substack.com/p/mitch-and-the-missing-story-the-real
+
+2025-12-30 02:15 +0100 [Deanna Chambers](https://substack.com/profile/13182333-deanna-chambers)
+
+> Every link in this article I’ve tried to look up goes nowhere. 🤨
+
 </blockquote>
