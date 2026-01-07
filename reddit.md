@@ -242,10 +242,18 @@ maybe 5% of recent comments are legit comments:
 
 > Could not link to the specific articles noted in the article. the link did take me to each individual site but not to the specific article. I did a search for each one, zero result.
 
-[2025-12-29 Mitch And The Missing Story - The Real Story](https://archive.is/https://georgewebb.substack.com/p/mitch-and-the-missing-story-the-real
+[2025-12-29 Mitch And The Missing Story - The Real Story](https://archive.is/https://georgewebb.substack.com/p/mitch-and-the-missing-story-the-real)
 
 2025-12-30 02:15 +0100 [Deanna Chambers](https://substack.com/profile/13182333-deanna-chambers)
 
 > Every link in this article I’ve tried to look up goes nowhere. 🤨
+
+[2026-01-07 Zodiac Mitch - Even A Serial Killer Can Give You Metadata](https://archive.is/https://georgewebb.substack.com/p/zodiac-mitch-even-a-serial-killer)
+
+2026-01-07 21:32 +0100 [Sandra Pugh](https://substack.com/profile/68341945-sandra-pugh)
+
+> Very bored with all of this
+>
+> Can you move on ?°
 
 </blockquote>
